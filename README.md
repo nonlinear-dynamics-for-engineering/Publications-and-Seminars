@@ -1,6 +1,6 @@
 # Journal Papers
 
-# \Journal Preprints
+# Journal Preprints
 
 
 # Conference Papers
