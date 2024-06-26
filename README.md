@@ -1,2 +1,2 @@
-Access to Journal Papers already published: https://forms.gle/mxMFthhazvjypxnP7
+Access to Journal Papers: https://forms.gle/mxMFthhazvjypxnP7
 
